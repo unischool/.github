@@ -1,4 +1,4 @@
-## Hi there 👋套一句愛因斯坦的話說：我並不是很聰明，只是和問題相處的久 By bestian@gmail.com
+## Hi there 👋套一句愛因斯坦的話說：我並不是很聰明，只是和問題相處的久 By  bestian@gmail.com
 
 <!--
 
